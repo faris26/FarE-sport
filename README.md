@@ -1,10 +1,5 @@
 # FarE-sport
 
-https://docs.google.com/document/d/1rlPBT5P8brkdVcKlRWdiBxEoZynJI-6R6IPopq052go/edit?usp=sharing
-
-https://docs.google.com/document/d/1mbQ7tfw88NMtBxFCgN_0Lyj_NLVKi6_SQ5mWolCY0_w/edit?usp=sharing
-
-
 Here is the link to the instructions in French: 
 https://docs.google.com/document/d/1rlPBT5P8brkdVcKlRWdiBxEoZynJI-6R6IPopq052go/edit?usp=sharing
 
